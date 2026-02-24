@@ -9,6 +9,9 @@
 
 - ⚡ Fun fact **Peak productivity at 5-6 am**
 
+- “Alle Menschen werden Brüder” — then let us also be a Europe that truly lives freedom, responsibility, and openness to innovation.
+Thank you for your work, Peter Steinberger.
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/philipp kötter" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="philipp kötter" height="30" width="40" /></a>
