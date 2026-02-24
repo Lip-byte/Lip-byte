@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Philipp</h1>
-<h3 align="center">A passionate automation developer from Germany</h3>
+<h3 align="center">A passionate software engineer for thermal system modeling from Germany</h3>
 
 - 🌱 I’m currently learning **Tensor Flow**
 
