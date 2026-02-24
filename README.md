@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **Peak productivity at 5-6 am**
 
-- Alle Menschen werden Brüder — then let us also be a Europe that truly lives freedom, responsibility, and openness to innovation.<br>
+- “All people become brothers” — let Europe be a place where freedom is lived, responsibility is embraced, and new ideas are welcomed with courage.<br>
   Thank you for your work, Peter Steinberger.
 
 <h3 align="left">Connect with me:</h3>
