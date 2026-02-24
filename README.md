@@ -3,11 +3,11 @@
 
 - 🌱 I’m currently learning **Tensor Flow**
 
-- 💬 Ask me about **my cat Oscar**
+- 💬 Ask me about **my cat Oscar**, **my Dog Penny**, or **my lovely wife**
 
 - 📫 How to reach me **philippkoetter@me.com**
 
-- ⚡ Fun fact **GigaChad is real**
+- ⚡ Fun fact **Peak productivity at 5-6 am**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
